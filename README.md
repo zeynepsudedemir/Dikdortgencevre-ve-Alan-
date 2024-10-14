@@ -1,1 +1,1 @@
-# Dikd-rtgen-evre-ve-Alan-
+# Dikdortgencevre-ve-Alan-
